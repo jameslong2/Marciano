@@ -32,7 +32,7 @@ verás la triste realidad,</br>
 nacerá en ti la capacidad de cambiar.</br>
 </br>
 Se esta tan comodo,</br>
-en el sillon de la imposiblidad,</br>
+en el sillón de la imposiblidad,</br>
 que nubla toda tu capacidad,</br>
 transformandote en un arbol,</br>
 que jamas se movera.</br>
